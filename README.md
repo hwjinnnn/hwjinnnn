@@ -1,6 +1,5 @@
 ## boas vindas ao meu perfil 🖤
 
-stray kids everywhere all around the world
-- 🖤 
+- **shu porang porang linosss** 🐱
 
-![](https://media1.tenor.com/m/7RGWu1T-DlEAAAAd/stray-kids-skz.gif)
+![](https://media1.tenor.com/m/b47hjH9z9ikAAAAd/stray-kids-lee-know.gif)
